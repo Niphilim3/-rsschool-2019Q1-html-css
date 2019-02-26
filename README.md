@@ -1,1 +1,3 @@
-# -rsschool-2019Q1-html-css
+Aleksander Mazan
+https://htmlacademy.ru/profile/id654827/achievements
+https://www.codecademy.com/users/AleksanderMazan/achievements
